@@ -1,4 +1,4 @@
-#  
+#  catch and tame automatic Scripts is the best catch and tame Script, featuring auto-sell and no cooldown. Safe and powerful for all your needs.
 
 
 
